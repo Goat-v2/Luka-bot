@@ -1,4 +1,4 @@
-#𝐆𝐎𝐀𝐓𝐁𝐎𝐓𝐕2 𝐂𝐑𝐄𝐄 𝐏𝐀𝐑 ﹝🌹𝐋𝐔𝐊𝐀🌹﹞
+# 𝐆𝐎𝐀𝐓𝐁𝐎𝐓𝐕2 𝐂𝐑𝐄𝐄 𝐏𝐀𝐑 ﹝🌹𝐋𝐔𝐊𝐀🌹﹞
 # 𝐩𝐫𝐨𝐣𝐞𝐭 𝐝𝐞 𝐜𝐫𝐞𝐚𝐭𝐢𝐨𝐧 </h1>
 <img                                  src="https://www.facebook.com/profile.php?id=61553923074004"                                    alt="banner">   
 <h1 align="center"><img               src="" width="22px">
